@@ -1,0 +1,1 @@
+# mindustry-ru.github.io
